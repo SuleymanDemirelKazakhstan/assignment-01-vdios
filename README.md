@@ -1,1 +1,1 @@
-#Nurmangaliyev Dias 190103485
+# Nurmangaliyev Dias 190103485
