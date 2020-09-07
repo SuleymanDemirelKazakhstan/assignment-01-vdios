@@ -1,1 +1,1 @@
-# DUMMY TEXT
+Nurmangaliyev Dias 190103485
